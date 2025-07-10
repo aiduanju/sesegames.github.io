@@ -3,6 +3,9 @@
 ## 🌟 简介
 
 欢迎来到sesegames涩涩游戏库，这里是绅士ACG游戏爱好者的乐园！
+网站地址：<https://www.ntrku.com/>
+网站地址：<https://www.ntrku.com/>
+网站地址：<https://www.ntrku.com/>
 
 github pages页链接（[https://sesegames.github.io](https://sesegames.github.io)）
 
