@@ -6,7 +6,7 @@
 
 github pages页链接（[https://sesegames.github.io](https://sesegames.github.io)）
 
-我们也有独立的网站([qfafa.com](https://qfafa.com)),上面搜索游戏更方便,目前游戏资源已经超过万款。
+我们也有独立的网站([ntrku.com](https://ntrku.com)),上面搜索游戏更方便,目前游戏资源已经超过万款。
 
 找绅士游戏的朋友可以来我们的网站看看，都是免费开放的，各种网盘都有，百度、迅雷网盘等等！
 
